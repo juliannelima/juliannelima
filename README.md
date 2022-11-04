@@ -1,4 +1,4 @@
-## Julianne Licón
+## Julianne Lima
 
 :computer: Desenvolvedora de Sistemas <br/>
 
